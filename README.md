@@ -1,0 +1,5 @@
+- 👋 Hola soy Jose Piñeiro Yagües
+- 👀 Estoy interesado en hacer el ciclo superior de ASIX.
+- 🌱 Actualmente estoy aprendiendo todo el mundo de la informatica, ya que estoy haciendo el curso de SMX.
+- 💞️ Estoy buscando colaborar en el mundo de la informatica ya que me parece bastante interesante. 
+- 📫 Para llegar a mi puedes utilizar el siguiente correo: jpineiroy@ies-sabadell.cat.
